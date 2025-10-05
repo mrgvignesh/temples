@@ -1,3 +1,5 @@
+#Shree Banashankari Devi Temple
+
 Āmukham (आमुखम्) :  
 Shree Banashankari Devi Temple  - Dedicated to Goddess Banashankari (an incarnation of Parvati), is a highly revered Hindu temple in Bangalore, known for its tranquil atmosphere and large number of devotees.
 The temple was built in 1915 by Somanna Shetty, who brought the idol of Goddess Banashankari from Badami, where her original and ancient temple is located. It is believed the presiding deity chose this place 
