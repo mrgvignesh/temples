@@ -1,4 +1,4 @@
-#Shree Banashankari Devi Temple
+# Shree Banashankari Devi Temple
 
 Āmukham (आमुखम्) :  
 Shree Banashankari Devi Temple  - Dedicated to Goddess Banashankari (an incarnation of Parvati), is a highly revered Hindu temple in Bangalore, known for its tranquil atmosphere and large number of devotees.
