@@ -1,3 +1,5 @@
+# Sri Dakshinamukha Nandi Temple
+
 Āmukham (आमुखम्) :  
 Sri Dakshinamukha Nandi Teertha Kalyani Kshetra is an ancient, hidden temple in Bangalore's Malleswaram neighborhood.
 It is popurlarly known for its unique, south-facing Nandi statue from which Water mysteriously flows onto a Shivalinga below and into a stepped tank called a Kalyani. 
