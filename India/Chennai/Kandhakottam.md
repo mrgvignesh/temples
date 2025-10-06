@@ -1,6 +1,6 @@
 # Shree Kandaswamy Temple
 
-Āmukham (आमुखम्) :  
+Brief / Āmukham (आमुखम्) :  
 Shree Kandaswamy Temple or [Arulmigu Muthukumaraswamy Devasthanam] (https://veludharan.blogspot.com/2022/12/sri-kandaswamy-temple-kandhakottam.html)  - Dedicated to lord Muruga / Skanda / Karthikeya.  
 The temple was built in 1670 (17th century) by Mari Chettiar in the present George Town (Parry's Corner) of Chennai / Madras.  Idol of Murugan is believed to have been brought from the famous Tiruporur Murugan temple. 
 The temple is open from around 5:30 AM to 12:30 PM and again from 4:00 PM to 9:00 PM.
