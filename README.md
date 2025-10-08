@@ -6,5 +6,5 @@ Temples in Bangalore -
 [Shri Dhakshina Nandi Temple](India/Bangalore/DhakshinaNandi.md)    
 
 Temples in Chennai -  
-[Shri Kandaswamy Temple](India/Chennai/Kandhakottam.md)
+[Shri Kandaswamy Temple](India/Chennai/Kandhakottam.md)  
 [Vadapalani Murugan Temple](India/Chennai/Vadapalani-Murugan.md)
