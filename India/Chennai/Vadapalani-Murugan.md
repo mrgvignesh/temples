@@ -1,5 +1,5 @@
 ## Vadapalani Murugan Temple, Chennai
-![Saravana Bhava](/photos/vadapalani.jpg)
+![Saravana Bhava](../../photos/vadapalani.jpg)
 ### Brief / Āmukham (आमुखम्) :
 [Vadapalani Murugan Temple](https://www.astroved.com/astropedia/en/temples/south-india/vadapalani-murugan-temple) is one of the most revered and popular temples dedicated to Lord Murugan in Chennai, Tamil Nadu. 
 The temple’s history dates back to the late 19th century, beginning as a humble thatched hut where Annaswami Naikar, a staunch devotee of Lord Murugan, worshipped a portrait of the deity.
@@ -30,7 +30,7 @@ Pray to her, and she will come to us and also summon Muruga to break our karmic 
  - Exit - Most devotees tend to exit via eastern entrance infront of temple tank. As per shastras, it is best to avoid exiting via this entrance.
 But if you attend Paliayrai pooja, there is no option rather than exiting via this way. Even then my practical hack is to exit via East entrance , circumbalate the temple reciting the name of Muruga
 and go to south entrance touch the foot stone and complete the visit.
-![Temple Tank](/photos/Vadapalani_murugan_temple_tank.jpg)
+![Temple Tank](../../photos/Vadapalani_murugan_temple_tank.jpg)
 
 - Trivia - The erstwhile **Hotel Saravana Bhavan** was originally started as a tea shop at this very location. It later expanded into a full-fledged hotel situated approximately 500 metres in the southern direction of the temple.
 During its operation, the hotel staff actively contributed to the temple's upkeep. They sponsored the flower decorations, managed the footwear stand, and took responsibility for maintaining the temple surroundings, including regular cleaning and upkeep.
