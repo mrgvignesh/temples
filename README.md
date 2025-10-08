@@ -7,3 +7,4 @@ Temples in Bangalore -
 
 Temples in Chennai -  
 [Shri Kandaswamy Temple](India/Chennai/Kandhakottam.md)
+[Vadapalani Murugan Temple](India/Chennai/Vadapalani-Murugan.md)
