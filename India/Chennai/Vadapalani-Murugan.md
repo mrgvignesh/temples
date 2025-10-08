@@ -22,8 +22,8 @@ Pray to her, and she will come to us and also summon Muruga to break our karmic 
  Bhairavar is the spritural guru who will accompany our souls and hence never miss his presence.
 - Hanuman - Anajaneyar is opposite to main sanctum near the south end of Flag mast. I always go around him for 21 times and he has graciously showered his blessings and fulfilled my prayers.
   
-- Blissful experience - The closing ceremony, known as the Palli Arai Pooja or the final puja, is my favorite part of visiting the temple. You have to purchase Rs 50/- special entrance ticket and wait besides the iron bar leading to sanctum atleast 8:30 PM.
-    -  Celestial Bath: Lord Palani is given a quick celestial bath, or Abhishekam, using milk (Goshala) and rose water (Paneer).
+- Blissful experience - The closing ceremony, known as the *Palli Arai Pooja* (or *final puja*), is my favorite part of visiting the temple. To witness this, you need to purchase a **₹50 special entrance ticket** and wait near the **iron barrier** that leads to the sanctum, **by at least 8:30 PM**. Please note: the **ticket counter closes by 8:30 PM**, so be sure not to miss it!
+   -  Celestial Bath: At about 9:00PM , Lord Palani andavar regular darshan is stopped and arrangements are made for closing ceremony. They will devotees to Paliyarai to be seated in front of him and we can have gracious sight of his celestial bath, or Abhishekam, using milk (Goshala) and rose water (Paneer).
     -  Procession: After the Arathi (waving of lights), the Lord is ceremonially taken to the Palliyarai (the ceremonial chamber), which is beautifully adorned with flowers. This marks the end of his public darshan for the day, as he retires for the night.
     -  Devotional Atmosphere: During the procession, the temple crowd chants “Arokara”, a sound that fills the space and allows for a moment of deep spiritual connection.
     -  Distribution of Prasadam: The ceremony concludes as the priest distributes the holy offering (Prasadam), typically consisting of sweet milk and ghee pepper rice with black sundal. 
